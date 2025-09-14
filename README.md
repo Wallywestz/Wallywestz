@@ -1,6 +1,6 @@
 ## STILL A WIPS!
 
-Name is wally and I eat dirts. my arts
+Name is wally and wally. my arts
 
 ![alt text](https://github.com/Wallywestz/Wallywestz/blob/86d2d700fcc56079ca3705c72397e376a0cba488/Untitled58_Restored_20250816133940.png)
 
